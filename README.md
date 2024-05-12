@@ -4,6 +4,6 @@ Você conhece alguém que dorme toda vez que pega um livro pra ler? Ou que demor
 
 A leitura, assim como muitas atividades, é uma questão de hábito. E a melhor fase pra criar o hábito da leitura é a infância e adolescência.
 
-Incentive suas crianças a ler e depois as convide para testar seus conhecimentos do livro de forma divertida. 
+Incentive seus filhos e amigos a ler e depois convide-os para testarem seus conhecimentos do livro de forma divertida.
 
-E de quebra o jogo ainda sugere um livro bacana pra você ler com seus filhos e voltar aqui pra testar novamente. 
+E de quebra o jogo ainda sugere um livro bacana pra você ler com eles e voltar aqui pra testar novamente.
